@@ -86,6 +86,6 @@ README.md
 
 ## 📩 Contact
 
-Prepared by: ** ERROL MATSWIKI – Bright Coffee Shop Case Study**    
-For queries: * matswikierrolgmail.com / 076 824 7803 *  
+Prepared by:  ERROL MATSWIKI    
+For queries: matswikierrol@gmail.com / 076 824 7803   
 
